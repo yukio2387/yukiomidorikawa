@@ -4,4 +4,5 @@
 -Estou jogando às 21:30, só na terça, quinta e fim de semana
 [{https://media.tenor.com/LqLDIyTDMlIAAAAM/neymar-neymar-jr.gif}]
 # SEGUE NOIS LÁ NO INSTA: yzzy_lost
+[{https://www.instagram.com/yzzy_lost?igsh=MTFrczI3b2Y3ZDZ1OQ==}]
   [{https://media.tenor.com/m7AgyFr9N04AAAAM/2pac-tupac.gif}]
